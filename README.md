@@ -1,1 +1,1 @@
-# GloryOrValhalla
+# Glory Or Valhalla
